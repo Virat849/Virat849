@@ -2,7 +2,7 @@
 - 👀 I’m interested in Programming and playing football⚽.
 - 🌱 I’m currently learning Python.
 - 💞️ I’m looking to collaborate on {No idea}
-- 📫 How to reach me insta - @viratvinova.
+- 📫 How to reach me insta - @virat_anyways18
 -                   -_- , :D, etc. 
 
 <!==__==
